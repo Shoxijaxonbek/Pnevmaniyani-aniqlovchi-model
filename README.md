@@ -1,0 +1,1 @@
+# Pnevmaniyani-aniqlovchi-model
